@@ -13,3 +13,12 @@ Moorkoppen en Negerzoenen mogen ook niet meer.
 Laat staat Afrikaantjes of Hamburgers of Frankfurters want dan discrimineer je weer iemand anders.
 En hoe staat het met de Drentse kei of de Zuidlaarder Bol?
 Haagse Hopjes of een Haags bakje!
+
+Wat over de Stoomboot, die draait op kolen, mag dat dan nog wel
+Of moet Sinterklaas weer met de zeilboot daan.
+
+Zie ginds komt de zeilboot in plaats van stoomboot.
+
+En als Spanje is gesplitst in groot Madrid en Cathelonie?
+
+
